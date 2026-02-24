@@ -1,1 +1,0 @@
-# hinti.github.io
